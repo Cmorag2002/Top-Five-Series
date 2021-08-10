@@ -31,4 +31,6 @@
 ## Nombres
 
 - Andrés Sanabria
-- (Agregar el resto de nombres)
+- Luisa.
+- Jhon.
+- No me acuerdo :)
