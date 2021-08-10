@@ -25,3 +25,10 @@
 ## **5. Avatar: La leyenda de Aang**
 
 ![Avatar](https://media1.tenor.com/images/72b6de1da9855b490e3eac0273bdfe88/tenor.gif?itemid=13514465)
+
+---
+
+## Nombres
+
+- Andrés Sanabria
+- (Agregar el resto de nombres)
