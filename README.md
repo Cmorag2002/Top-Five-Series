@@ -24,4 +24,4 @@
 
 ## **5. Avatar: La leyenda de Aang**
 
-![Avatar](https://i.gifer.com/OKwk.gif)
+![Avatar](https://media1.tenor.com/images/72b6de1da9855b490e3eac0273bdfe88/tenor.gif?itemid=13514465)
