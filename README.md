@@ -16,7 +16,7 @@
 
 ---
 
-## **4. Rick and Morty **
+## **4. Rick and Morty**
 
 ![Rick and Morty](https://media4.giphy.com/media/liBsVeLILcyaY/giphy.gif)
 
